@@ -9,6 +9,7 @@ https://github.com/associazioneCoScienze/My-Record-Book
 
 Link al video L’esperto menzionato da Luca de Pascale.
 The Expert (Short Comedy Sketch)
+https://www.youtube.com/watch?v=BKorP55Aqvg&authuser=0
 
 
 Ringraziamo ancora gli speaker e DevDay per la disponibilità, alla prossima.
